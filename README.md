@@ -1,4 +1,0 @@
-# 12220033
-# Sigit Prabowo
-# UAS
-# PRODUKSI MINYAK MENTAH DUNIA
